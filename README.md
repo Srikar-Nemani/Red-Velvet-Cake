@@ -1,0 +1,1 @@
+Red Velvet cake is a type of cake which tastes like vanilla and choclate. It is my favorite cake.
